@@ -50,12 +50,6 @@ MS Excel, PowerBI, Tableau, Python...
 ⚡️ Fun fact...
 
 
-## Related
-
-Here are some related projects
-
-[Awesome README](https://github.com/matiassingers/awesome-readme)
-
 
 ## Contact me
 
