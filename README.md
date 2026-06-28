@@ -3,7 +3,7 @@
 
 I used to be a thing. Now I'm a lot of things that I cannot describe.
 
-🤔 I'm just evolving and surviving really
+🤔 I'm just evolving and surviving really. 
 
 
 
